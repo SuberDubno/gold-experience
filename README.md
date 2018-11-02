@@ -1,2 +1,5 @@
 # gold-experience
-i dont know what to put hare (i am jojo fan )
+
+
+
+am hi ! i am dubno . i love watch jojo 
